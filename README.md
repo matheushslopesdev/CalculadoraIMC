@@ -1,3 +1,3 @@
-E tome mais um projeto cliche, todo mundo ja fez, todo curso tem, e tudo e isso nao mostra nada a capacidade de alguem
-porem o mercado de trabalho ta um saco, e essa e minha critica, codigo porco, e foda-se...
-bem vindo a realidade de 2025
+AI, MAIS UM CODIGO MERDA NO GITHUB, SO PARA MOSTRAR QUANDO BOSTA E ISSO
+RECRUTADORES, OLHEM BEM ESSE CODIGO....
+NINGUEM VAI VER. CAGUEI !!!
